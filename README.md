@@ -1,6 +1,5 @@
 # How to Watch YouTube When It's Blocked In 2026
 
-
 ---
 
 **Stuck trying to watch YouTube at school, work, or overseas?**
